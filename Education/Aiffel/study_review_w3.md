@@ -9,7 +9,7 @@
 벌써 금요일이라니... 난 아직도 이번까지 마무리해야 할 것들이 많은데...
 
 ### **[ Week 3. 강렬했던 Exploration, 새로운 풀잎스쿨 시작 ]**
-
+<img width="100%" src="https://user-images.githubusercontent.com/83560273/125961500-7ec54639-1772-4265-807e-9288007d60a9.png"/>
 
                                                                 [아이펠 강남 2기] 3주차 일정표
 
